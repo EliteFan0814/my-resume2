@@ -1,3 +1,2 @@
 # 我的个人简历
-![我的个人简历](https://i.loli.net/2019/06/04/5cf672845bcd550387.png)
-# my-resume2
+![我的个人简历](https://i.loli.net/2019/07/12/5d2803bdd242783028.png)
